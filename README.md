@@ -5,7 +5,7 @@ Quem leu vai virar CLT!
 ![](https://media.tenor.com/xFQQjN3oyPIAAAAj/gojo-satoru.gif)
 ![](https://media.tenor.com/DEIIRlcWXTcAAAAM/brazilian-memes-fox.gif)
 ![](https://media.tenor.com/cCv2UQEjf9sAAAAM/boulos-guilherme.gif)
-![](
+![](https://media.tenor.com/u_uKx5RuotoAAAAM/trollface-boa-tarde.gif)
 ![](
 ![](
 ![](
